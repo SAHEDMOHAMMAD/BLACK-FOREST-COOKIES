@@ -1,24 +1,7 @@
 # BLACK-FOREST-COOKIES
 Black Forest Cookies
-Rating: 3.98 stars
-58 Ratings
-21 Reviews
 These rich, chewy cookies were inspired by black forest cake, a classic German dessert that combines chocolate and cherries.
 
-Save
-Pin
-Print
-
-More
-Gallery
-Black Forest Cookies 
-Recipe Summary
-Prep:
-40 mins
-Total:
-1 hr 40 mins
-Yield:
-Makes 36
 Ingredients
 Ingredient Checklist
 1 cup all-purpose flour, spooned and leveled
@@ -32,49 +15,6 @@ Ingredient Checklist
 2 large eggs
 1 package (about 12 ounces) semisweet chocolate chunks 
 1 1/2 cups dried cherries
-Local Offers
-ZIP 45224
-
-
-Whole Foods Market
-2693 Edmondson Rd
-CINCINNATI, OH 45209
-
-
-Kerrygold Unsalted Pure Irish Butter 8 Oz
-$3.50 for 1 item - expires today
-
-
-Kroger
-8421 Winton Rd Ste A
-CINCINNATI, OH 45231
-
-
-Target
-9040 Colerain Ave
-CINCINNATI, OH 45251
-
-
-Walmart
-8451 Colerain Ave
-CINCINNATI, OH 45239
-
-
-The Fresh Market
-3088 Madison Rd
-CINCINNATI, OH 45209
-
-
-• • • • •
-May We Suggest
-
-Shop KitchenAid’s Most Popular Mixer
-
-It’s 44% off right now.
-
-“SHOP
-ADVERTISEMENT
-
 
 DirectionsInstructions Checklist
 Step 1
